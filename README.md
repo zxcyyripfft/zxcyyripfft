@@ -1,5 +1,5 @@
 # 💫 About Me:
-waiting for late game
+haha hihi
 
 
 # 💻 Tech Stack:
